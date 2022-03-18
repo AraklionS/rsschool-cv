@@ -1,4 +1,4 @@
-gi# **Ilia Arutiunian**
+# **Ilia Arutiunian**
 E-mail: fess-ilya@mail.ru	
 
 Linkedin: https://www.linkedin.com/in/ilia-arutiunian-9677b5193	
